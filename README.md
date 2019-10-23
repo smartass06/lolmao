@@ -1,2 +1,2 @@
 # lolmao
-remove this 
+remove this person
